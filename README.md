@@ -1,0 +1,13 @@
+- 👋 Hi, I’m @blairja51
+- 👀 I’m interested in ...
+- 🌱 I’m currently learning ...
+- 💞️ I’m looking to collaborate on ...
+- 📫 How to reach me ...
+
+<!---
+blairja51/blairja51 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->
+Hi,
+This is Exciting!   I'm looking forward to meeting yall.    I'm 70 years old entering into your world of hi-tech.  I'm a crafter, a pragmatic artist whose geriatric issues
+issues compelled to consider new horizons in producing.  I want to specialized in leather, and in meeting production needs for our entrepreneurial community here in Detroit.
